@@ -1,0 +1,2 @@
+# sun-iy-intelekt
+sfdduryrdyeser
